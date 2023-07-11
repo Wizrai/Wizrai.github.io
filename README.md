@@ -1,1 +1,0 @@
-# Wizrai.github.io
